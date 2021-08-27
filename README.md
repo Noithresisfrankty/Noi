@@ -1,3 +1,3 @@
 # Noi
 
-https://discord.com/user/693148536883118210
+https://discord.com/users/693148536883118210
